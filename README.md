@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jimbot6000
+- 👋 Hi, I’m Jimmy Mack
 - 👀 I do a lot of random little things.
 - 🌱 I’m currently studying computer engineering at UCSB.
 - 📫 I can be contacted only by mystic symbolism in fever dreams.
